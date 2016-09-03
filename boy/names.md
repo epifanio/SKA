@@ -7,5 +7,5 @@ Proviene dal latino Marius, nome tipico della gens Maria, di origine non del tut
 Viene occasionalmente utilizzato come forma maschile del nome Maria, al quale non è in alcun modo correlato; la corretta forma femminile di Mario è Mària, con l'accento sulla prima "a". Mario ha goduto nel corso del XX secolo di una notevole popolarità ed è stato il quinto nome maschile per diffusione in Italia in quel periodo, scendendo poi al di sotto dei primi venti agli inizi del XXI secolo.
 
 
-# Al di la di ... **Origine e diffusione**
+## Al di la di ... **Origine e diffusione**
 Mario e' il nome del mio amagto Papá, di uno dei miei più cari amici :) ed inoltre rispetta il *toerema di Troisi* che spiega l'utilita' dei nomi brevi ai fini educativi. 
