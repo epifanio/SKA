@@ -8,4 +8,6 @@ Viene occasionalmente utilizzato come forma maschile del nome Maria, al quale no
 
 
 ## Al di la di ... **Origine e diffusione**
-Mario e' il nome del mio amagto Papá, di uno dei miei più cari amici :) ed inoltre rispetta il *toerema di Troisi* che spiega l'utilita' dei nomi brevi ai fini educativi. 
+Mario e' il nome del mio amato Papá, di uno dei miei più cari amici :) ed inoltre rispetta il *toerema di Troisi* che spiega l'utilita' dei nomi brevi ai fini educativi. 
+
+Todo me parece bien
