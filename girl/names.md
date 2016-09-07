@@ -31,3 +31,7 @@ Asi se llamaba mi munneca preferida cuando era pequenna!
 
 # Rosita
 
+# Sofie  
+
+Versione norvegese di Sofia, deriva dal greco).
+E' breve, veloce e suona bene ... oltre a significare sapienza e saggezza (donatale dalla natura, ma stara' a noi sapere come coltivarla)
