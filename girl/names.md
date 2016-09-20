@@ -44,3 +44,6 @@ E' breve, veloce e suona bene ... oltre a significare sapienza e saggezza (donat
 
 # Edna
 
+# Rosetta
+Como la piedra ;-)
+
