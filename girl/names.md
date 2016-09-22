@@ -47,3 +47,5 @@ E' breve, veloce e suona bene ... oltre a significare sapienza e saggezza (donat
 # Rosetta
 Como la piedra ;-)
 
+#Ylva
+Noruego antiguo/vikingo. Significa loba
