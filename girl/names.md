@@ -19,6 +19,12 @@ Es el nombre del pueblo donde nacio mi abuela paterna
 # Lorella
 Se parece a Lora...
 
+# Loretta
+
+# Lorelai
+
+# Loralee
+
 # Mirella
 
 # Marinella
