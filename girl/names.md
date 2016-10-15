@@ -19,7 +19,7 @@ Es el nombre del pueblo donde nacio mi abuela paterna
 # Lorella
 Se parece a Lora...
 
-# Loretta
+# Loretta/Loreta
 
 # Lorelai
 
@@ -53,5 +53,22 @@ E' breve, veloce e suona bene ... oltre a significare sapienza e saggezza (donat
 # Rosetta
 Como la piedra ;-)
 
-#Ylva
+# Ylva
 Noruego antiguo/vikingo. Significa loba
+
+# Balbina
+encontrado en una lista de nombres antiguos
+
+# Celina
+Nombre de familia
+
+# Ilora
+encontrado en una lista de nombres antiguos
+
+# Tadea
+idem
+
+# Delfa
+idem
+
+# Amelia
