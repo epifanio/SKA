@@ -25,6 +25,8 @@ Se parece a Lora...
 
 # Loralee
 
+# Loralì
+
 # Mirella
 
 # Marinella
@@ -39,10 +41,14 @@ Asi se llamaba mi munneca preferida cuando era pequenna!
 
 # Rosita
 
-# Sofie  
+# Sofie  / Sofia / Sophia / Sophie / Sophy
 
 Versione norvegese di Sofia, deriva dal greco).
-E' breve, veloce e suona bene ... oltre a significare sapienza e saggezza (donatale dalla natura, ma stara' a noi sapere come coltivarla)
+E' breve, veloce e suona bene, si pronuncia "quasi" uguale in molte lingue ... oltre a significare sapienza e saggezza (donatale dalla natura, ma stara' a noi sapere come coltivarla) http://www.behindthename.com/name/sophia
+
+# Italia
+
+
 
 # Violetta
 
@@ -74,3 +80,5 @@ idem
 # Amelia
 
 # Tessa
+
+
