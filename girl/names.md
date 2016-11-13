@@ -68,22 +68,22 @@ Suena bien, se pronuncia igual en muchos idiomas, suena parecido a Mirelis, y cu
 
 ## Antea
 
-# Carmela
+## Carmela
 Es gallego tambien
 
-# Marinella
+## Marinella
 
-# Ondina
+## Ondina
 Como las olas del mar
 
-# Rosalinda
+## Rosalinda
 Asi se llamaba mi munneca preferida cuando era pequenna!
 
-# Violetta
-# Balbina
+## Violetta
+## Balbina
 encontrado en una lista de nombres antiguos
 
-# Celina
+## Celina
 Nombre de familia
 
 
